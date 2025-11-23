@@ -4,6 +4,6 @@
 <p align="center">
   <a href="https://tiktok.com/@dogletsky">tiktok</a>ㅤ✦ㅤ
   <a href="https://sxnadow.straw.page/">strawpage</a>ㅤ✦ㅤ
-  <a href="https://@sxnicky.atabook.org/">atabook</a>
+  <a href="https://@sevys.atabook.org/">atabook</a>
 </p>
 ㅤ
